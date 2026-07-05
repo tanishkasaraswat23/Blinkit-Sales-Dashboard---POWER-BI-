@@ -96,4 +96,4 @@ Blinkit-Sales-Dashboard-PowerBI/
 
 **Tanishka Saraswat**
 
-[LinkedIn:www.linkedin.com/in/tanishka-saraswat] | [GitHub:@tanishkasaraswat23]
+[LinkedIn:www.linkedin.com/in/tanishka-saraswat] | [GitHub:@tanishkasaraswat23] [Email:tanishkasaraswat23@gmail.com]
